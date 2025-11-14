@@ -8,7 +8,7 @@
 A wise son listens and makes good choices. His actions bring delight and happiness to those who care for him. 
 <br><br>
 
-**And Who is the Foolish?**  
+**And Who is Foolish?**  
 A foolish son ignores advice and acts carelessly. His actions cause worry and disappointment for those who love him.
 <br><br>
 
